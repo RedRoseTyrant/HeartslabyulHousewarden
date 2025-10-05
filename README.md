@@ -24,7 +24,7 @@ Toxicity, ERP's, and then Life in general/pos
 <br/>
 
 Read before you Interact/Follow:
-- 《 This acc and my alt ( @RenownedArchitect ) is not for business purposes, so pls stop randomly following me in both acc just bc of my ( or this  )repository or among other things》
+- 《 This acc and my alt ( @RenownedArchitect ) is not for business purposes, so pls stop randomly following me in both acc just bc of my ( or this  ) repository or among other things》
 - 《 Mentally neutral chaotic and silly, unless I vibe with you 》
 - 《 Dry to talk to unless I've talked to you before or I connect with your interests with mine's, I'm socially awkward 》
 - 《 If I don't sit with you that means I don't know you personally ( no offense ) or I ( or you ) don't have a 'c+h' tag or I probably just wanna sit with you ( with the same fandom as you ) so I could AFK 》
