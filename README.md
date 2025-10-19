@@ -1,6 +1,7 @@
    ─── ･ ｡ﾟ☆: *.☽ ☾ ⋆*･ﾟ:･ ｡ﾟ☆ ･ ｡ﾟ☆: *.☽ ☾ ⋆*･ﾟ:⋆*･ﾟ☆☾ ⋆*･ﾟ:⋆*･ﾟ☆.* :☆ﾟ.:*.☽ ☾ ⋆*･ﾟ:⋆*･ﾟ☆☾ ⋆*･ﾟ:⋆*･ﾟ☆.* :☆ﾟ.⋆*･ﾟ☆☾ ⋆*･ﾟ:⋆*･ﾟ☆.* :☆ﾟ. ───
 
-![20250925_140240](https://github.com/user-attachments/assets/a49c8073-d814-44bd-84a5-09ab8c5128ac)
+
+![20251019_182332](https://github.com/user-attachments/assets/04bd764e-6dff-4b41-b4f1-39628e0c6783)
 
 
    ─── ･ ｡ﾟ☆: *.☽ ☾ ⋆*･ﾟ･ ｡ﾟ☆: *.☽ ☾ ⋆*･ﾟ:⋆*･ﾟ☆☾ ⋆*･ﾟ:⋆*･ﾟ☆.* :☆ﾟ.:⋆*･ﾟ☆☾ ⋆:･ ｡ﾟ☆: *.☽ ☾ ⋆*･ﾟ:⋆*･ﾟ☆☾ ⋆*･ﾟ:⋆*･ﾟ☆.* :☆ﾟ.*･ﾟ:⋆*･ﾟ☆.* :☆ﾟ. ───
@@ -9,14 +10,14 @@
 
 $${\color{limegreen}Introductions}$$
  
-- A.K.A. $${\color{lightblue}Eden}$$, $${\color{red}Artemis}$$ or $${\color{blue}Freminet/Fremi}$$
+- A.K.A. $${\color{lightblue}Eden}$$, $${\color{blue}Artemis}$$ or $${\color{red}Riddle}$$
 - Pronouns: $${\color{pink}She/Her}$$, $${\color{orangered}They/Them}$$
 - Age: 21
 - Birthday: XX/XX
  <br/>
  
 $${\color{fuchsia}Like/s}$$:
-- ***Freminet and Special Week***, Drawing, Gaming, Music, EDM genre, Cookies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and the Stars, YouTubers, EN/JP VA enthusiast
+- ***Apple Tart***, Drawing, Gaming, Music, EDM genre, Cookies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and the Stars, YouTubers, EN/JP VA enthusiast
 <br/>
 
 $${\color{silver}Dislike/s}$$: 
