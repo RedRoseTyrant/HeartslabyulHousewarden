@@ -1,7 +1,8 @@
    ─── ･ ｡ﾟ☆: *.☽ ☾ ⋆*･ﾟ:･ ｡ﾟ☆ ･ ｡ﾟ☆: *.☽ ☾ ⋆*･ﾟ:⋆*･ﾟ☆☾ ⋆*･ﾟ:⋆*･ﾟ☆.* :☆ﾟ.:*.☽ ☾ ⋆*･ﾟ:⋆*･ﾟ☆☾ ⋆*･ﾟ:⋆*･ﾟ☆.* :☆ﾟ.⋆*･ﾟ☆☾ ⋆*･ﾟ:⋆*･ﾟ☆.* :☆ﾟ. ───
 
 
-![20251019_182332](https://github.com/user-attachments/assets/04bd764e-6dff-4b41-b4f1-39628e0c6783)
+![20251025_085438](https://github.com/user-attachments/assets/b7b9223d-d995-43d1-9510-f99373c30271)
+
 
 
    ─── ･ ｡ﾟ☆: *.☽ ☾ ⋆*･ﾟ･ ｡ﾟ☆: *.☽ ☾ ⋆*･ﾟ:⋆*･ﾟ☆☾ ⋆*･ﾟ:⋆*･ﾟ☆.* :☆ﾟ.:⋆*･ﾟ☆☾ ⋆:･ ｡ﾟ☆: *.☽ ☾ ⋆*･ﾟ:⋆*･ﾟ☆☾ ⋆*･ﾟ:⋆*･ﾟ☆.* :☆ﾟ.*･ﾟ:⋆*･ﾟ☆.* :☆ﾟ. ───
@@ -10,7 +11,7 @@
 
 $${\color{limegreen}Introductions}$$
  
-- A.K.A. $${\color{lightblue}Eden}$$, $${\color{blue}Artemis}$$ or $${\color{red}Riddle}$$
+- A.K.A. $${\color{lightblue}Eden}$$, $${\color{cyan}Artemis}$$ or $${\color{blue}Dain}$$
 - Pronouns: $${\color{pink}She/Her}$$, $${\color{orangered}They/Them}$$
 - Age: 21
 - Birthday: XX/XX
